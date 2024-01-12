@@ -17,3 +17,15 @@
 ![2352eab7](https://github.com/ibayuzuyaoienjoyer/ibayuzuyaoienjoyer/assets/156369062/433eaf7b-50b5-40e2-9676-1d09f4215c84)
 ![9ac33676](https://github.com/ibayuzuyaoienjoyer/ibayuzuyaoienjoyer/assets/156369062/9ae5abb6-f9f0-4670-abe8-e5a27f1fdda2)
 ![68747470733a2f2f6d656469612e646973636f72646170702e6e65742f6174746163686d656e74732f313032393634363136343830303331353431322f313138363738343031323036353331363838352f657a6769662e636f6d2d776562702d746f2d6769662d636f (1)](https://github.com/ibayuzuyaoienjoyer/ibayuzuyaoienjoyer/assets/156369062/e60de847-7def-4f08-b6ab-c82967484b5b)
+
+
+
+![d6020086](https://github.com/ibayuzuyaoienjoyer/ibayuzuyaoienjoyer/assets/156369062/1ffb1ed7-722f-4715-bba1-22e9a04234a0)
+![64098518](https://github.com/ibayuzuyaoienjoyer/ibayuzuyaoienjoyer/assets/156369062/5db519a9-9074-47a4-a8f9-f190e100331f)
+![9b8277b5](https://github.com/ibayuzuyaoienjoyer/ibayuzuyaoienjoyer/assets/156369062/1f5bf8b2-a82a-4f49-ac68-8a687dc123fd)
+![22265eea](https://github.com/ibayuzuyaoienjoyer/ibayuzuyaoienjoyer/assets/156369062/925516b8-0b22-4586-a3e9-557cb58cdbef)
+
+![6d9a36ec](https://github.com/ibayuzuyaoienjoyer/ibayuzuyaoienjoyer/assets/156369062/2a6e14d2-92dd-4754-a63f-652d3e58ad56)
+![61358438](https://github.com/ibayuzuyaoienjoyer/ibayuzuyaoienjoyer/assets/156369062/5062b83b-08a1-461e-9cd4-d87cf89ef7e9)
+![bb550158](https://github.com/ibayuzuyaoienjoyer/ibayuzuyaoienjoyer/assets/156369062/8b1ffb43-2a57-4ed5-a91a-a0b2935721dc)
+![9ce10986](https://github.com/ibayuzuyaoienjoyer/ibayuzuyaoienjoyer/assets/156369062/85643da0-7298-44c7-92af-13dc99cfbce3)
